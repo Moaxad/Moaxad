@@ -5,7 +5,7 @@
 
 
 - 📫 moayadkhz@gmail.com
-- 🔗 <a href="moayadkhz.sa">moayadkhz.sa</a> 
+- 🔗 [My Portfolio](https://moayadkhz.sa)
 
 
 
