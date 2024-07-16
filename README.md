@@ -5,7 +5,7 @@
 
 
 - 📫 moayadkhz@gmail.com
-- 🔗 [Moayadkhz.sa](https://moayad.ai) (Coming soon!)
+- 🔗 [moayad.ai](https://moayad.ai) (Coming soon!)
 
 <br>
 <br>
