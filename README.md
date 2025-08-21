@@ -6,8 +6,7 @@
 
 - 📫 moayadkhz@gmail.com
 - 🏆 [My Kaggle](https://www.kaggle.com/moayadalkhozayem)
-- 🔗 [moayad.ai](https://moayad.ai) (Coming soon!)
-
+- 🔗 [moayad.ai](https://moayad.ai) 
 
 <br>
 <br>
